@@ -1,1 +1,1 @@
-I just deleted something
+A conflict is brewing. I just deleted something
